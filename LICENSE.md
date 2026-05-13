@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with premium Trading Bot for Polymarket - take-profit-orders and risk-management, the #1 trading-bot. Includes take-profit-orders and
 
 
 
